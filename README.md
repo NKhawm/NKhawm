@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @NKhawm
+- 👋 Hi, I’m Niang @NKhawm
 - 👀 I’m interested in graphic designs and I'd love to learn more.
 - 🌱 I’m currently learning web development which is totally new for me.
 - I love cooking, baking and listening ot music and making music too :)
